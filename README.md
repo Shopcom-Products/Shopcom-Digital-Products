@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Okular PDF Reader V25.11.70 download link : (Product Price : Free) (Size : 151 MB)
+https://www.shopcom.tn/product/okular-pdf-reader-v25-11-70/download
+
 Quran PDF Arabic download link : (Product Price : Free) (Size : 118 MB)
 https://www.shopcom.tn/product/quran-pdf-arabic/download
 
@@ -191,6 +194,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Okular PDF Reader V25.11.70 torrent download link : (Product Price : Free) (Size : 151 MB)
+https://www.shopcom.tn/product/okular-pdf-reader-v25-11-70/torrent-download
 
 Quran PDF Arabic torrent download link : (Product Price : Free) (Size : 118 MB)
 https://www.shopcom.tn/product/quran-pdf-arabic/torrent-download
