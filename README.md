@@ -2,6 +2,9 @@
 
 Direct download links :
 
+GIMP Photo Editor V3.2.4 download link : (Product Price : Free) (Size : 179 MB)
+https://www.shopcom.tn/product/gimp-photo-editor-v3-2-4/download
+
 Okular PDF Reader V25.11.70 download link : (Product Price : Free) (Size : 151 MB)
 https://www.shopcom.tn/product/okular-pdf-reader-v25-11-70/download
 
@@ -194,6 +197,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+GIMP Photo Editor V3.2.4 torrent download link : (Product Price : Free) (Size : 179 MB)
+https://www.shopcom.tn/product/gimp-photo-editor-v3-2-4/torrent-download
 
 Okular PDF Reader V25.11.70 torrent download link : (Product Price : Free) (Size : 151 MB)
 https://www.shopcom.tn/product/okular-pdf-reader-v25-11-70/torrent-download
