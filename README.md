@@ -2,6 +2,9 @@
 
 Direct download links :
 
+D5-Render-V2.6.1.0423 download link : (Product Price : Free) (Size : 1.41 GB)
+https://www.shopcom.tn/product/d5-render-v2-6-1-0423/download
+
 GIMP Photo Editor V3.2.4 download link : (Product Price : Free) (Size : 179 MB)
 https://www.shopcom.tn/product/gimp-photo-editor-v3-2-4/download
 
@@ -197,6 +200,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+D5-Render-V2.6.1.0423 torrent download link : (Product Price : Free) (Size : 1.41 GB)
+https://www.shopcom.tn/product/d5-render-v2-6-1-0423/torrent-download
 
 GIMP Photo Editor V3.2.4 torrent download link : (Product Price : Free) (Size : 179 MB)
 https://www.shopcom.tn/product/gimp-photo-editor-v3-2-4/torrent-download
